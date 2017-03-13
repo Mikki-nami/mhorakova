@@ -7,11 +7,11 @@ když ho sní, že bude všemu rozumět, co které zvíře v povětří, na zemi
 Tomu králi se to líbilo, že bude umět, co nikdo neumí, dobře babičce zaplatil a hned poručil sloužícímu, 
 aby mu tu rybu k obědu připravil.
 
-„Ale,“ prý, „ať ji ani na jazyk nevezmeš, sic mi to svou hlavou zaplatíš!“
+„Ale, prý, ať ji ani na jazyk nevezmeš, sic mi to svou hlavou zaplatíš!“
 
 Jiříkovi, tomu sloužícímu, bylo divné, proč mu to král tak tuze zapověděl.
 
-Jakživ jsem takovou rybu neviděl,“ povídá sám sobě, „vypadá zrovna tak jako had! A jaký by to byl kuchař, aby ani neokusil, co strojí?“
+„Jakživ jsem takovou rybu neviděl,“ povídá sám sobě, „vypadá zrovna tak jako had! A jaký by to byl kuchař, aby ani neokusil, co strojí?“
 
 Když to bylo upečeno, vzal kouštíček na jazyk a ochutnával.
 
@@ -35,7 +35,7 @@ Když jeli po zelené louce poskočil Jiříkův kůň a zařehtal: "Hohohoho, b
 
 „Což je o to, povídá druhý, „já bych taky rád skákal, ale na mne sedí starý: skočím-li, svalí se na zem jako měch a srazí vaz.
 
-„Aťsi srazí, co z toho?“ řekl Jiříkův kůň. „Místo starého budeš nosit mladého.“
+„Ať si srazí, co z toho?“ řekl Jiříkův kůň. „Místo starého budeš nosit mladého.“
 
 Jiřík srdečně se té rozmluvě zasmál, ale jen tak potichu, aby král nevěděl. Ale král taky dobře rozuměl, co si koníci povídali, 
 ohlídl se, a vida, že se Jiřík směje, ptá se: „Čemu se směješ?“
